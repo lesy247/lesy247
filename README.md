@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lesy247
+- 👀 I’m interested in Wordpress, content managerment, and photography
+- 🌱 I’m currently learning Blender
+- 📫 Reach me via lesy247@yahoo.com
